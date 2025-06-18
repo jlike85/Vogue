@@ -1,2 +1,0 @@
-# Vogue
-Christina’s Ledger
